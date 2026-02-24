@@ -1,1 +1,0 @@
-# Assignment-on-design-thinking
